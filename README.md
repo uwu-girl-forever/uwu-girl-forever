@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @uwu-girl-forever
 - 👀 I’m interested in cock
-- 🌱 I’m currently learning how to cock
+- 🌱 I’m currently learning how to rim
 - 💞️ I’m looking to collaborate on rimming
 - 📫 How to reach me no clue
 - 😄 Pronouns: cok/lover
